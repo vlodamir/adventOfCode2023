@@ -1,0 +1,1 @@
+coe tady heeej stary chlapeee
